@@ -1,1 +1,0 @@
-# stimulate35-master-math-site
